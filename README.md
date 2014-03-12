@@ -1,6 +1,6 @@
-Did not know what I was doing, but at least I can follow directions....
 
-Worst Blog Ever... You stink:
+
+Worst Blog Ever:
 http://maerickson.github.io/
 
 
